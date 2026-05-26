@@ -27,8 +27,3 @@ When I'm not debugging or mapping out project workflows, you can usually find me
 - Sticking to a disciplined routine at the gym or hitting a weekend 10km run.
 - Optimizing my smart home hardware and audio routing setups.
 - Cooking up creamy pasta recipes or experimenting with food. 
-
----
-📫 **Let's Connect!**
-* [LinkedIn](YOUR_LINKEDIN_URL_HERE)
-* [Portfolio/Website](YOUR_PORTFOLIO_URL_HERE)
